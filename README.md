@@ -15,10 +15,10 @@ HAVE A GOOD DAY😉
 
 ⚒️CODES:
 
-- .HTML
-- .CSS
-- .LUA
-- .JS
+- . HTML
+- . CSS
+- . LUA
+- . JS
 
 ----->
 <-----
