@@ -1,4 +1,6 @@
-DEVELOPER IN: 👉👉👉 https://discord.gg/213roleplay 👈👈👈
+DEVELOPER IN: 
+👉👉👉 https://discord.gg/213roleplay 👈👈👈
+👉👉👉 https://discord.gg/moonac 👈👈👈
 
 ----->
 <-----
